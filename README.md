@@ -30,10 +30,3 @@ https://github.com/brave881/DragDropXml/assets/84896890/06cb0659-b797-4053-a1c6-
 
 
   
-
-
-https://github.com/brave881/DragDropXml/assets/84896890/bd63ed69-fb79-4d8f-b6c5-6d5974a4a866
-![photo_2023-07-25_13-36-49](https://github.com/brave881/DragDropXml/assets/84896890/5091a631-fd24-423b-98ac-286acff55f83)
-![photo_2023-07-25_13-36-50](https://github.com/brave881/DragDropXml/assets/84896890/7ef2fea8-48f4-4d0e-886c-99c9f474d568)
-https://github.com/brave881/DragDropXml/assets/84896890/2ce01c79-6366-4597-a966-f2c3d924d679
-
